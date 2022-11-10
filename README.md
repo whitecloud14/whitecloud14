@@ -1,4 +1,4 @@
-### My story 👋
+### My Story 💙💛💜
 
 <!--
 **whitecloud14/whitecloud14** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
